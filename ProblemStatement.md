@@ -1,0 +1,1 @@
+www.kaggle.com/competitions/summer-school-24-25-hackathon/overview/description
